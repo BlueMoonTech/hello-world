@@ -1,4 +1,4 @@
 # hello-world
 Just another repository
-My name is Joshua Emmanuel gbary by tribe from western Africa Nigeria 
-being precised
+Emmanuel, I like Team work specially in this 
+Global case of programming
